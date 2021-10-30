@@ -1,1 +1,1 @@
-hoge
+Have a nice day!
